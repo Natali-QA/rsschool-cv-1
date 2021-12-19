@@ -19,7 +19,7 @@
 
 ### Briefly about myself:
 
-Hello everyone. My name is Mitya. I am 27 years old. I graduated from the Belarusian National Technical University in 2017. Automotive Faculty, Department of Economics and Logistics. 
+Hello everyone. My name is Mitya. I am 27 years old. I graduated from the Belarusian National Technical University in 2017. Automotive Faculty, Department of Economics and Logistics. My specialty is an engineer-economist.
 
 For the last 5 years I have been working in the field of online sales, a small private business, in particular, it was connected with the work of a content manager for online stores, SEO promotion and Social media marketing. 
 
